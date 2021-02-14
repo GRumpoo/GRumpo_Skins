@@ -8,5 +8,5 @@
 # [Elohere](https://grumpo.s-ul.eu/HuJfdSwi) 
 ![](https://osu.ppy.sh/ss/16210259/4562)
 
-# [Instant](https://grumpo.s-ul.eu/4WCZcxP8)
-![](https://osu.ppy.sh/ss/16210267/f71c)
+# [Instant](https://grumpo.s-ul.eu/tCVTx0Pi)
+![](https://osu.ppy.sh/ss/16211537/e4c5)
