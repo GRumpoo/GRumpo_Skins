@@ -7,4 +7,4 @@
 ![](https://osu.ppy.sh/ss/16210259/4562)
 
 # [Instant](https://mega.nz/file/RDgSgQhb#IgIQOoVFT_abhiAzmR8qEFQ-E-Y4vmiAxFmHuxfV83o)
-![](https://osu.ppy.sh/ss/15975010/428c)
+![](https://osu.ppy.sh/ss/16210267/f71c)
