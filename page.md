@@ -5,8 +5,8 @@
 # [Main](https://grumpo.s-ul.eu/DggkmXwF) 
 ![](https://osu.ppy.sh/ss/16211492/a07b)
 
-# [Elohere](https://grumpo.s-ul.eu/HuJfdSwi) 
-![](https://osu.ppy.sh/ss/16210259/4562)
-
-# [Instant](https://grumpo.s-ul.eu/tCVTx0Pi)
+# [Elohere](https://grumpo.s-ul.eu/tCVTx0Pi) 
 ![](https://osu.ppy.sh/ss/16211537/e4c5)
+
+# [Instant](https://grumpo.s-ul.eu/4WCZcxP8)
+![](https://osu.ppy.sh/ss/16211546/0619)
