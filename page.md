@@ -9,4 +9,4 @@
 ![](https://osu.ppy.sh/ss/16213812/65a0)
 
 # [Instant](https://grumpo.s-ul.eu/4WCZcxP8)
-![](https://osu.ppy.sh/ss/16211546/0619)
+![](https://osu.ppy.sh/ss/16213833/1c8d)
