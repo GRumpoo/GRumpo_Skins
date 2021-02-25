@@ -1,12 +1,9 @@
-# GRumpo_Skins
-
 # DM me if the skin list is not up to date: GRumpo_#4147
 
-# [Main](https://grumpo.s-ul.eu/1xeiLoZH) 
-![](https://osu.ppy.sh/ss/16213816/bf5b)
+![](https://osu.ppy.sh/ss/16258195/6894)
+![](https://osu.ppy.sh/ss/16258211/2778)
+![](https://osu.ppy.sh/ss/16258205/47d5)
+![](https://osu.ppy.sh/ss/16258209/5a02)
 
-# [Elohere](https://grumpo.s-ul.eu/KcGYJWDM) 
-![](https://osu.ppy.sh/ss/16213812/65a0)
-
-# [Instant](https://grumpo.s-ul.eu/ihmVGimI)
-![](https://osu.ppy.sh/ss/16213833/1c8d)
+# [Click here](https://grumpo.s-ul.eu/zZaMhj9v) 
+![](https://osu.ppy.sh/ss/16258189/701c)
